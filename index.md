@@ -34,3 +34,4 @@ Let's make a return to appreciation of diligence and work. Measures not yet take
 In 2021, small-scale investment became trep itself nationwide. Employment in Finland grew more than ever before. We may be pleased with the power of the good news of diligence, but this is just the beginning. Structural unemployment is still 6-7%. Debt must be reduced when interest rates rise.
 
 ### Staying up to date doesn’t make a difference, but five leaps ahead do. WA-groups and social channels are different for each other. Be in touch.
+Society is not a private project. The better tomorrow is made together. Choices that make us become the change. 
