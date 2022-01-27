@@ -1,12 +1,12 @@
-## Coming from both people and the will to influence
+## Coming from both people and the will to do more
 
 The foundation for good social influence is built together from the beginning. I believe in the inclusion of people.
-– Samuel Sylf
+– Samuel Sylf, a candidate to the parliament, the Centre.
 
-Here are the things through which we can work during the 2023 parliamentary election campaign. I invite you [to do.](https://forms.gle/1zbDPFrNhu2qC7gd8) Muutosvoima on yhdessä tekemistä. Kärkiteemana kannattava suunta elämälle. 
+Here are the matters, **[in Finnish](https://samuelsylf.github.io/blog/)** through which we can work during the 2023 parliamentary election campaign. I invite you [to do.](https://forms.gle/1zbDPFrNhu2qC7gd8) Muutosvoima on yhdessä tekemistä. Kärkiteemana kannattava suunta elämälle. 
 
 
-### Incentive traps out
+### Incentive traps out, theme 1.
 
 We need to make diligence more worthwhile, responsibility more worthwhile, more community-friendly.
 
@@ -22,7 +22,7 @@ The economic situation in Finland affects everyone; families, young people, expe
 I'd rather...
 1. **breaking down incentive traps**
 2. **improving the attractiveness of work**
-3. **enabling study and work**
+3. **enabling study and work more fairly**
 ...rather than tightening taxes.
 ```
 
