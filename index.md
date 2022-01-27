@@ -1,36 +1,36 @@
-## Lähtöisin sekä ihmisistä että tahdosta vaikuttaa
+## Coming from both people and the will to influence
 
-Hyvän yhteiskunnallisen vaikuttamisen perusta rakennetaan yhdessä alusta alkaen. Uskon ihmisten osallisuuteen.
+The foundation for good social influence is built together from the beginning. I believe in the inclusion of people.
 – Samuel Sylf
 
-Tässä asioita, joiden kautta me voimme ponnistaa eduskuntavaalien 2023 kampanjan aikana. Kutsun teidät [tekemään.](https://forms.gle/1zbDPFrNhu2qC7gd8) Muutosvoima on yhdessä tekemistä. Kärkiteemana kannattava suunta elämälle. 
+Here are the things through which we can work during the 2023 parliamentary election campaign. I invite you [to do.](https://forms.gle/1zbDPFrNhu2qC7gd8) Muutosvoima on yhdessä tekemistä. Kärkiteemana kannattava suunta elämälle. 
 
 
-### Kannustinloukut pois
+### Incentive traps out
 
-Meidän on tehtävä ahkeruudesta kannattavampaa, vastuullisuudesta tuottoisaa, yhteisöllisyydestä kannustavaa.
+We need to make diligence more worthwhile, responsibility more worthwhile, more community-friendly.
 
 ```markdown
-Suomen taloudellinen tilanne vaikuttaa kaikkiin; perheisiin, nuoriin, kokeneisiin ikäihmisiin.
+The economic situation in Finland affects everyone; families, young people, experienced seniors.
 
-# Suhdannetasoitettu talousalijäämä on ollut pakkaspuolella yli kymmenen vuoden ajan
-## Ja ylijäämän kasvattaminen on osoittautunut vaikeaksi.
-### Seuraavan kahden eduskuntakauden aikana, hallitus joutuu kiristämään _jotain_
+# The cyclically-adjusted economic deficit has been on the frosty side for more than a decade.
+## And growing the surplus has proved difficult.
+### Over the next two parliamentary terms, the government will have to tighten _something_
 
-- Meidän on tehtävä fiksut ratkaisut hyvinvoivan huomisen vuoksi. 
+- We need to make smart decisions for a prosperous tomorrow.
 
-Minä haluan mielummin...
-1. **purkaa kannatusloukkuja**
-2. **parantaa työn teon houkuttelevuutta**
-3. **mahdollistaa opiskelu ja työnteko**
-...kuin kiristää veroja. 
+I'd rather...
+1. **breaking down incentive traps**
+2. **improving the attractiveness of work**
+3. **enabling study and work**
+...rather than tightening taxes.
 ```
 
-Ilmoittaudu mukaan tekemään eduskuntavaalikampanja, [Samuel Sylf:n matkassa](https://forms.gle/1zbDPFrNhu2qC7gd8).
+Sign up to run a parliamentary election campaign, [alongside with Samuel Sylf](https://forms.gle/1zbDPFrNhu2qC7gd8).
 
-### Tehdään yhdessä; pääteeman ympärillä pidetään yhtä.
+### Let's do it together; one is considered around the main theme.
 
-Tehdään kunnianpalautus työlle. Vielä tekemättömät toimet, joilla saadaan kannustusloukut pois mm. opiskelijoilta, yrittelijäältä toiminnalta, ja piensijoittajilta. 
-Vuonna 2021 piensijoittaminen löi itsensä läpi valtakunnallisesti. Suomen työllisyys kasvoi enemmän kuin koskaan aikaisemmin. Voimme olla tyytyväisiä ahkeruuden ilosanoman tuomaan voimaan, mutta tämä on vasta alkua. Rakenteellinen työttömyys on yhä 6-7%. Velkaa on pienenettävä kun korot nousevat.
+Let's make a return to appreciation of diligence and work. Measures not yet taken to remove incentive traps e.g. students at work, entrepreneurial activities, and small investors.
+In 2021, small-scale investment became trep itself nationwide. Employment in Finland grew more than ever before. We may be pleased with the power of the good news of diligence, but this is just the beginning. Structural unemployment is still 6-7%. Debt must be reduced when interest rates rise.
 
-### Ajantasalla pysyminen ei tee muutosta, vaan viisi harppausta edellä. WA-ryhmät ja sosiaaliset kanavat ovat toinen toisiamme varten. Ollaan yhteyksissä. 
+### Staying up to date doesn’t make a difference, but five leaps ahead do. WA-groups and social channels are different for each other. Be in touch.
