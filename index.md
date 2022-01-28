@@ -20,7 +20,7 @@ The economic situation in Finland affects everyone; families, young people, expe
 - We need to make smart decisions for a prosperous tomorrow.
 
 I'd rather...
-1. **breaking down incentive traps**
+1. **break down incentive traps**
 2. **improving the attractiveness of work**
 3. **enabling study and work more fairly**
 ...rather than tightening taxes.
@@ -31,7 +31,7 @@ Sign up to run a parliamentary election campaign, [alongside with Samuel Sylf](h
 ### Let's do it together; one is considered around the main theme.
 
 Let's make a return to appreciation of diligence and work. Measures not yet taken to remove incentive traps e.g. students at work, entrepreneurial activities, and small investors.
-In 2021, small-scale investment became trep itself nationwide. Employment in Finland grew more than ever before. We may be pleased with the power of the good news of diligence, but this is just the beginning. Structural unemployment is still 6-7%. Debt must be reduced when interest rates rise.
+In 2021, "small-scale investing" became trend itself nationwide. Employment in Finland grew more than ever before. We may be pleased with the good news of diligence, but this is just the beginning. Structural unemployment is still 6-7%. Debt must be reduced when interest rates rise.
 
 ### Staying up to date doesn’t make a difference, but five leaps ahead do. WA-groups and social channels are different for each other. Be in touch.
 Society is not a private project. The better tomorrow is made together. Choices that make us become the change. 
