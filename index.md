@@ -6,7 +6,7 @@ The foundation for good social influence is built together from the beginning. I
 Here are the matters, **[in Finnish](https://samuelsylf.github.io/blog/)**, through which we can work during the 2023 parliamentary election campaign. I invite you [to do.](https://forms.gle/1zbDPFrNhu2qC7gd8) Muutosvoima on yhdessä tekemistä. Kärkiteemana kannattava suunta elämälle. 
 
 
-### Incentive traps out, theme 1.
+### Incentive traps out, thesis 1.
 
 We need to make diligence more worthwhile, responsibility more worthwhile, more community-friendly.
 
@@ -21,17 +21,19 @@ The economic situation in Finland affects everyone; families, young people, expe
 
 I'd rather...
 1. **break down incentive traps**
-2. **improving the attractiveness of work**
-3. **enabling study and work more fairly**
-...rather than tightening taxes.
+2. **improve the attractiveness of work**
+3. **enable study and work more fairly**
+...rather than tighten taxes.
 ```
 
 Sign up to run a parliamentary election campaign, [alongside with Samuel Sylf](https://forms.gle/1zbDPFrNhu2qC7gd8).
 
-### Let's do it together; one is considered around the main theme.
+### Let's do together; onenesss is considered around the main thesis.
 
 Let's make a return to appreciation of diligence and work. Measures not yet taken to remove incentive traps e.g. students at work, entrepreneurial activities, and small investors.
 In 2021, "small-scale investing" became trend itself nationwide. Employment in Finland grew more than ever before. We may be pleased with the good news of diligence, but this is just the beginning. Structural unemployment is still 6-7%. Debt must be reduced when interest rates rise.
 
-### Staying up to date doesn’t make a difference, but five leaps ahead do. WA-groups and social channels are different for each other. Be in touch.
-Society is not a private project. The better tomorrow is made together. Choices that make us become the change. 
+### Staying up to date doesn’t make a difference, but five leaps ahead do. WA-groups and social channels connect up each other to the neighbourhood, where you can be active. Be in touch.
+Society is not a private project. The better tomorrow is made together. Choices that foster us become the change. 
+Constructively,
+- Samuel Sylf
