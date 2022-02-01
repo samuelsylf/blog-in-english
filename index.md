@@ -3,7 +3,7 @@
 The foundation for good social influence is built together from the beginning. I believe in the inclusion of people.
 – Samuel Sylf, a candidate to the parliament, the Centre.
 
-Here are the matters, **[in Finnish](https://samuelsylf.github.io/blog/)**, through which we can work during the 2023 parliamentary election campaign. I invite you [to do.](https://forms.gle/1zbDPFrNhu2qC7gd8) Muutosvoima on yhdessä tekemistä. Kärkiteemana kannattava suunta elämälle. 
+Here are the matters, **[in Finnish](https://samuelsylf.github.io/blog/)**, through which we can work during the 2023 parliamentary election campaign. I invite you [to do.](https://forms.gle/1zbDPFrNhu2qC7gd8) The power of change is something we do together. The main theme is _Worthwhile Direction For Life_.
 
 
 ### Incentive traps out, thesis 1.
